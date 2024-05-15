@@ -36,8 +36,8 @@ Where is the best place to be over the next 15 years?
 ### Places That Are Ruled Out
 
 - United States (healthcare costs and crypto climate make this senseless, and if we did go there we would go to Buffalo, NY)
-- Hanoi (bad vibes man)
-- Cambodia (my short term trucking career)
+- Vietnam (bad vibes man)
+- Cambodia (I stole a giant truck full of sand there when having a bipolar episode and I can't go there, but I would, if I could, since Sopheavy is from there)
 - Places where it is prohibitively difficult for our family to stop through to get a feel for life there. Cambodian passports aren't very strong 
 
 Thank you very much for any advice. We hope to begin dating locations 30 days hence.
@@ -46,6 +46,7 @@ Thank you very much for any advice. We hope to begin dating locations 30 days he
 
 
 ### East or Southeast Asia:
+
 - **Malaysia**
   - Kuala Lumpur
   - Penang
@@ -57,12 +58,14 @@ Thank you very much for any advice. We hope to begin dating locations 30 days he
   - Manila
 
 ### EMEA
+
 - **Dubai**
 - **South Africa**
   - Cape Town
 - **Madeira**
 
 ### Americas
+
 - **Argentina**
 - **Brazil**
   - Sao Paolo
