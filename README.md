@@ -6,5 +6,7 @@
 
 ## Family
 
+[Living Spaces](./networkstate.md)
+
 
 ## Business
