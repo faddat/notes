@@ -56,6 +56,7 @@ Thank you very much for any advice. We hope to begin dating locations 30 days he
 - **Taiwan**
 - **Philippines**
   - Manila
+  - Cebu
 
 ### EMEA
 
